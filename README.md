@@ -1,2 +1,1 @@
-# ALAPRIMERA
-Apaga nulon
+SOY TERRIBLE NAZI
